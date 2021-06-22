@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EDATOKEN
-- 👀 I’m interested in CRYPTOCURENCY
+- 👀 I’m interested in CRYPTOCURRENCY
 - 🌱 I’m currently learning HOW TO MAKE RICH PEOPLE
 - 💞️ I’m looking to collaborate on GREEN PROJECT AND DECREASE CO2 AND CARBON USE
 - 📫 How to reach me YOU CAN FIND ME HERE OR YOU CAN EMAIL ME - edatoken@protonmail.com
