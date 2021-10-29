@@ -1,4 +1,6 @@
-- 👋 Hi, I used to be @EDATOKEN - now our name will be ETV-TOKEN WITH BETTER TECHNOLOGY, MORE COMPROMISE, AND A BETTER TEAM. 
+- 👋 Hi, I used to be @EDATOKEN - i have been cancelled i am so sad because some bad people still from my original owners! Please be aware and dont buy me!!!! 
+- All the tokens were transferred yesterday
+-  https://bscscan.com/token/0xe51233f147690a8d46abcc2a146bd81c400aad03 (today date is octubre 29, 2021 - local time 07:16 am) 
 - 👀 I’m interested in
 - 🌱 I’m currently learning  
 - 💞️ I’m looking to collaborate on 
